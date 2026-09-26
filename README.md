@@ -1,6 +1,6 @@
 Project Code:** WST21-PM-2026-SF
 
-**Student Name:** [RAGUINE, TRISHA ESTHER D.]
+**Student Name:** [CHRISTINE MAE S. SAURA]
 
 **Course & Year:** [BSIT 2]
 
